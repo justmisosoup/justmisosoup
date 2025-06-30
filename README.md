@@ -1,4 +1,4 @@
-### Hey there, I'm Sara 
+### Hey there, I'm Sara! 👋🏼
 
 I'm currently a Product Designer working at [Middesk](https://github.com/middesk). 
 
